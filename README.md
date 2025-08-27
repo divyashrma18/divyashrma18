@@ -41,7 +41,7 @@ Database:
 
 
 📫 **Let’s Connect**  
-[📧 Email Me](mailto:dvsharma3143@gmail.com) • [💼 LinkedIn](https://www.linkedin.com/in/divyashrma18/)
+[📧 Email Me](mailto:divya.builds@gmail.com) • [💼 LinkedIn](https://www.linkedin.com/in/divyashrma18/)
 
 ---
 
